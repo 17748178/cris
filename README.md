@@ -1,7 +1,7 @@
 ### opa meu amigo eu sou novo nesse programa intao eu estou començando estudar programaçao 
-si quiser da uma olhada la meu perfil 
+si quiser da uma olhada la meu perfil
 - java script
-- nois utilizamos espaço para organisaçao e compartilhamentos 
+- nois utilizamos espaço para organisaçao e compartilhamentos
 
  <em>cywhite
 
@@ -20,3 +20,9 @@ atendimento ao cliente
  sexta-feira:08:00Am ate 07:00Pm
  Sábado:07:30Am ate 13:30Pm
  Domingo:09:00Am ate 14:00Pm
+### voce pode entrar em contato comigo 😊 
+	- e-mail: santiagochristopher076@gmail.com
+	- numero de telefone: 41 992650347
+	- instagram: cris_edits_017
+	
+	
