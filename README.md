@@ -24,5 +24,5 @@ atendimento ao cliente
 	- e-mail: santiagochristopher076@gmail.com
 	- numero de telefone: 41 992650347
 	- instagram: cris_edits_017
-	
+![](https://media.tenor.com/ZXOGYiLIFLUAAAAC/nikoversogif-niko-do-discord-gif.gif)
 	
